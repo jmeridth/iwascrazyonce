@@ -1,1 +1,1 @@
-[I was crazy once](iwascrazyonce.com)
+[I was crazy once](https://iwascrazyonce.com)
